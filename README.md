@@ -1,0 +1,2 @@
+# earn
+Game earn free
